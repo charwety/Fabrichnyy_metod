@@ -1,0 +1,1 @@
+# Fabrichnyy_metod
